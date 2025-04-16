@@ -1,5 +1,5 @@
 
-saya demam ni nak makan lambchop
+saya demam ni nak makan lambchop . EWAHHHH
 =======
 Star is beautiful!
 
