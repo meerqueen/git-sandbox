@@ -1,6 +1,4 @@
 
-saya demam ni nak makan lambchop . EWAHHHH
-=======
 Star is beautiful!
 
 
@@ -28,7 +26,8 @@ Worry-free sandbox repository for learning.
 😍
 
 hahahahahahahhaha
-
+hello! 
+lunch time....
 HI EVERYONE  🤩🤩🤩🤩
 Life is good
 
@@ -178,24 +177,3 @@ krikrikrik
 
 hi semua
 
-print( "hi semua");
-
-Hi Everything!!!
-Yo yo, rain, sleeping time
-
-Life is good!
-
-USM We Lead!
-
-Yo yo, rain, sleeping time
-
-Life is good!
-
-testing 123
-
-Hellooo
-kDOOOFOFWOWEFOPWEFOPWEFNPF
-FBUIFEUOFWEIOEFWIO
-MEOW INTENSIFIES!!!
-OIOEFHIFNIORFNIO
-VRNOARINRANIORN
