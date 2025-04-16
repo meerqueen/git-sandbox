@@ -1,21 +1,56 @@
+
+saya demam ni nak makan lambchop
+=======
+Star is beautiful!
+
+
+Testing testing 1 2 3
+
+hello there!
+
+Diana is cool! XD
+nice
+LEARN IS FUN
+nur fairuz
+
+Seafood Tomyam is really good!
+
+I'm okay 
+LEARN IS FUN
+I'm enjoying what I'm doing now!!!
+Thank you for sharinng your knowledge to us!!!
 # git-sandbox
+
+My hometown is known for durians! I hope you all enjoy them.
+
+Have a nice day 
+Worry-free sandbox repository for learning.
+😍
+
 hahahahahahahhaha
 hello! 
 lunch time....
 HI EVERYONE  🤩🤩🤩🤩
-asdf
+Life is good
 
 Do your best.. Learn and learn..Dont be give up !!! 👌👌👌😊
-
+Hi everyone!
 kg pisang bersiri siri
 
-yakyak yeaaaaa
+hi Mr ChanJuPing😍
 
-🫠🫠🫠
+yakyak yeaaaaa
+ 🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣 
 
 sleepy zzzz
 
 This is a melting face emoji
+
+# A Fireworks Line
+
+🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆🎆
+
+---
 
 Worry-free sandbox repository for learning.
 
@@ -28,13 +63,14 @@ Fom Sungai Bakap
 KEEP LEARNING
 
 BELAJAR SELAGI TERDAYA
+feeeenatttt
 
 I love TO learn coding
 JANGAN CEPAT PUTUS ASA
 Hello Everyone
 
 Welcome to my page
-
+Hello
 I was here! Yay!
 
 I am learning.
@@ -47,11 +83,13 @@ Hello. Good evening
 hooray!
 Happy
 
-🤩🤩🤩
+>3 >3
 
 Congratulation !
 
 Hi and hello !
+
+Selamat Petang Semua
 
 hello and hi
 
@@ -73,12 +111,22 @@ Sleeeeeeeeeeeeepyhead
 sel-sel otak terus berhubung🤣
 
 happy birthday
-
+ 🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  
 Hai saya dari jawi
 
 
 happy birthday
 enjoy belajar
+
+hhhhhh
+ 🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣 
+
+happy too
+
+happy 
+
+bila nak balik
+
 
 ...............................................................
 
@@ -99,7 +147,10 @@ print (" Hello World")
 Hi there.. Everything is FINE HERE.. 
 Hi! I'm here too..
 
+I need a cup of coffee...
+
 ainnnn
+nak balik sekarang, boleh x?
 
 tiredddddd
 
@@ -108,6 +159,7 @@ PKG tanjung bunga
 Hi from PKG Tg Bungah
 Take it easy !
 
+hellooooooo
 
 @@Balik Awal@@
 
@@ -117,6 +169,7 @@ TQ PSC! TQ to the most scary tutor but sweet!
 
 tambah tolak darab bahagi
 
+おれのおしは、だれだけ？
 
 Hihi 
 Hihi
@@ -125,3 +178,4 @@ try
 krikrikrik
 
 hi semua
+
