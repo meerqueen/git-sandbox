@@ -1,4 +1,4 @@
-
+sek sek kelate boh
 saya demam ni nak makan lambchop
 =======
 Star is beautiful!
