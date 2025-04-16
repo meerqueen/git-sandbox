@@ -1,5 +1,5 @@
 
-saya hensem dan single LOL
+saya demam ni nak makan lambchop
 =======
 Star is beautiful!
 
